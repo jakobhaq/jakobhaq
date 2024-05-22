@@ -1,5 +1,5 @@
 - 💛 @jakobhaq
-- 🩷 coding n00b
+- 🧡 coding n00b
 - 💜 🎛️🎹
 - 💙 He/Him
 
