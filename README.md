@@ -1,7 +1,7 @@
 - 💛 @jakobhaq
-- 🧡 coding n00b
-- 💜 🎛️🎹
-- 💙 He/Him
+- 🧡 🎹
+- 💜 coding n00b
+- 💙 🎛️
 
 <!---
 jakobhaq/jakobhaq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
